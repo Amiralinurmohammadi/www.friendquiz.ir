@@ -1,1 +1,1 @@
-# www.freindquiz.ir
+# www.friendquiz.ir
